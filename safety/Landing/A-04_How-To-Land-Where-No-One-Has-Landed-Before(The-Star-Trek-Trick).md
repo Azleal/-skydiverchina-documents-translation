@@ -1,4 +1,8 @@
-#  <#Title#>
+#  How To Land Where No One Has Landed Before (The Star Trek Trick)
+...Or Where Everyone Else Is Landing, But That’s Beside the Point
+
+![](http://www.dropzone.com/images/safety/3/11923-work-lienbacher2.jpg)
+
 You’ve seen Star Trek, you big nerd -- so you know the answer to this question: When everybody’s staring out the front of a spaceship as it slams into warp speed, what are they looking at?
 
 Don’t make that face. This absolutely applies to skydiving.
@@ -34,3 +38,5 @@ Many skydivers refer to this phenomenon as “the accuracy trick,” which seems
 (Shh. You know you giggled.)
 
 ** For this reason, “the accuracy trick” is a little trickier to use for paraglider pilots, because visual cues have a tendency to bounce around as the wing is affected by thermic “bubbles” near ground level.
+
+original: http://www.dropzone.com/safety/Landing/How_To_Land_Where_No_One_Has_Landed_Before_The_Star_Trek_Trick__1143.html

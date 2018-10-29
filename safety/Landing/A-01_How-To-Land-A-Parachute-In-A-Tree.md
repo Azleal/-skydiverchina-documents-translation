@@ -2,6 +2,9 @@
 
 Damage Control for Unwilling Christmas Ornaments
 
+![Skydiving Article Image1](http://www.dropzone.com/images/safety/3/13013-work-600166-largest_andre.jpg)
+Image by Corrado Mariani
+
 Christmas ornaments are lovely, aren’t they? Glossy, colorful baubles, swinging gaily from the bushy branches of a fragrant fir, make our little hearts sing along with the season they decorate.
 
 They are not, however, excellent role models for air sports athletes.

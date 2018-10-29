@@ -1,4 +1,6 @@
 #  The Straight and Narrow - Cross-Wind Landings
+
+![](http://www.dropzone.com/images/safety/8/12658-work-cross-wind-landing.JPG)
 Nobody’s going to argue that landing directly into the wind is the best way to go, but we’re not always that lucky. Got a long, narrow path between obstacles? Unless you’re super-duper lucky and the wind direction seems to have been designed entirely for your landing pleasure, you’ve got yourself a crosswind landing, my friend.
 
 If you jump at a busy DZ with a super-strict canopy pattern, you’ve undoubtedly honed your crosswind skills. Great--but that’s not the only place that crosswind landings rear their skinny heads. For instance: you’ll find them lurking at an overpopulated boogie, where the landing area is a human forest with a clear patch at the very edge…or a forehead-slapper of an off landing, where your only choice is a road...or pretty much every beach landing, ever.
